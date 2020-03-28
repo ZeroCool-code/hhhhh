@@ -1,2 +1,0 @@
-# ZeroCool-code
-verererere
